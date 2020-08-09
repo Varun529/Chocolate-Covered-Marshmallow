@@ -1,1 +1,1 @@
-You cover a regular marshmallow in chocolate syrup and freeze it
+You cover a regular marshmallow in chocolate syrup or melted chocolate and freeze it

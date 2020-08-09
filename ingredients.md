@@ -1,1 +1,1 @@
-Ingredients: marshmallow, choclate syrup
+Ingredients: marshmallow, choclate syrup/melted chocolate
